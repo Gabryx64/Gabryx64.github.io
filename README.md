@@ -1,1 +1,1 @@
-# Gabryx64.github.io
+# Gabryx64's blogs
